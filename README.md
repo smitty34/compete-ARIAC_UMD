@@ -1,0 +1,1 @@
+# compete-ARIAC_UMD
